@@ -16,10 +16,15 @@ Dans les rues sombres de la ville, un mauvais coup se prépare, il est organisé
 
 ![Le Joker se prépare](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRyCZvtyJ4pjUqBqs7fRSSFAk9NIJRnlptFyg&usqp=CAU "Le Joker se prépare")
 
-Le Joker s'apprête à faire exploser la tour Wayne, un des symboles les plus puissants de la ville.
+Le **Joker** s'apprête à faire exploser la tour Wayne, un des symboles les plus puissants de la ville.
 Mais le comissaire Gordon a eu vent de ses actions et il a déjà lancé un appel au chevalier noir...
 
 ![Le comissaire attend Batman](https://static.tvtropes.org/pmwiki/pub/images/JamesGordonGPD_8431.jpg "Le comissaire attend Batman")
 
 Comme à son habitude, l'homme chauve-souris arrive sans un bruit, récolte les informations du comissaire
 et disparaît sans un bruit en filant à toute allure vers le bâtiment emblématique de la famille Wayne.
+
+
+Le **Joker** rit, son rire strident résonnant dans la nuit. Batman, déterminé, escalade rapidement la tour Wayne. Le regard des deux ennemis se croise au sommet. La tension est palpable.
+
+Le **Joker**, toujours souriant, dévoile son plan macabre. La ville retient son souffle. La destinée de Gotham est suspendue à un fil entre la justice et le chaos.
