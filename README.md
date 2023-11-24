@@ -20,3 +20,6 @@ Le Joker s'apprête à faire exploser la tour Wayne, un des symboles les plus pu
 Mais le comissaire Gordon a eu vent de ses actions et il a déjà lancé un appel au chevalier noir...
 
 ![Le comissaire attend Batman](https://static.tvtropes.org/pmwiki/pub/images/JamesGordonGPD_8431.jpg "Le comissaire attend Batman")
+
+Comme à son habitude, l'homme chauve-souris arrive sans un bruit, récolte les informations du comissaire
+et disparaît sans un bruit en filant à toute allure vers le bâtiment emblématique de la famille Wayne.
