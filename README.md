@@ -28,3 +28,5 @@ et disparaît sans un bruit en filant à toute allure vers le bâtiment embléma
 Le **Joker** rit, son rire strident résonnant dans la nuit. Batman, déterminé, escalade rapidement la tour Wayne. Le regard des deux ennemis se croise au sommet. La tension est palpable.
 
 Le **Joker**, toujours souriant, dévoile son plan macabre. La ville retient son souffle. La destinée de Gotham est suspendue à un fil entre la justice et le chaos.
+
+Le Joker, son rire strident résonnant dans la nuit, dévoile son plan macabre au sommet de la tour Wayne. Batman, déterminé, fixe son ennemi juré. La ville retient son souffle, suspendue entre la justice et le chaos. Dans un éclair, le Chevalier Noir se lance à l'action, esquivant les pièges mortels du Joker avec une agilité inégalée. La confrontation atteint son paroxysme alors que Gotham oscille entre la destruction et la salvation, les deux forces emblématiques s'affrontant dans l'obscurité, déterminant le destin de la cité.
